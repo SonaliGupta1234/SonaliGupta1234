@@ -8,7 +8,7 @@
 
 - 📫 How to reach me **sonaligupta3244@gmail.com**
 
-- ⚡ Fun fact **I can move the pen between my figures**
+  
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
